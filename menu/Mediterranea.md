@@ -17,3 +17,13 @@ Platos de Carne: Cordero asado, guiso de carne con verduras y tomate.
 Platos de Pasta: Pasta con pesto, pasta con salsa de tomate casera. 
 
 Otros Platos: Frittata, tabulé. 
+
+*Bebidas Recomendadas:*
+
+Vino: Vino tinto (como Rioja, o Chianti, o vino blanco) en cantidades moderadas.
+
+Agua: Es la bebida ideal para acompañar las comidas.
+
+Infusiones: Hierbas aromáticas como té de hierbabuena o té de menta.
+
+Zumo de Frutas: Zumo de naranja, o zumo de limón (para refrescar). 
