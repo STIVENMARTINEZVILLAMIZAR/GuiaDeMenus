@@ -23,3 +23,11 @@ Una sopa de verduras con pasta, que refleja la abundancia de la región.
 
 - *Ossobuco:*
 Un plato de carne de ternera estofada, con una salsa sabrosa y una guarnición de verduras. 
+
+*Bebidas Recomendadas:*
+
+- *Vino:* La amplia variedad de vinos italianos se adapta a cada plato, desde los tintos robustos hasta los blancos ligeros.
+
+- *Café:* El expreso italiano es un clásico que acompaña la comida y postres.
+
+- *Limoncello:* Un licor de limón refrescante, ideal para el postre. 
