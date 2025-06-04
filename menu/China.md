@@ -24,3 +24,13 @@ Chop Suey: Plato de fideos, carne, vegetales y salsa.
 Lo Mein: Fideos salteados con verduras y salsa.
 
 Chow Mein: Fideos salteados con verduras y salsa, generalmente con carne o pollo. 
+
+*Bebidas recomendadas:*
+
+Té verde: Una opción clásica y refrescante.
+
+Té de jengibre: Ideal para calentar y aliviar el estómago.
+
+Cervezas chinas: Una alternativa para acompañar la comida.
+
+Bebidas de frutas: Una opción más ligera y refrescante. 
