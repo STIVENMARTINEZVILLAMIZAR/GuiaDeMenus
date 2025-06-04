@@ -34,3 +34,20 @@ Té de jengibre: Ideal para calentar y aliviar el estómago.
 Cervezas chinas: Una alternativa para acompañar la comida.
 
 Bebidas de frutas: Una opción más ligera y refrescante. 
+
+*Consejos y sugerencias:*
+
+Explora diferentes estilos culinarios:
+La cocina china es muy diversa, con diferentes estilos regionales como la cocina de Sichuan, Cantonesa, etc. 
+
+Prueba ingredientes nuevos:
+La cocina china utiliza una amplia gama de ingredientes, desde verduras y hierbas hasta carne y marisco. 
+
+Experimenta con diferentes técnicas:
+La cocina china utiliza una variedad de técnicas de cocción, como saltear, freír, cocer al vapor, etc. 
+
+No te limites a un solo restaurante:
+Hay muchos restaurantes chinos diferentes, desde aquellos que se especializan en comida para llevar hasta aquellos que ofrecen una experiencia más sofisticada. 
+
+Disfruta de la experiencia:
+La comida china es una experiencia culinaria que vale la pena disfrutar. 
