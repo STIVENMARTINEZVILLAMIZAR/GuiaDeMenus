@@ -30,3 +30,16 @@ Cervezas: Seleccionadas por su sabor y frescura.
 Refrescos: Variedad de opciones para complementar la comida.
 
 Jugos Naturales: Frescos y saludables.
+
+*Consejos y Sugerencias:*
+
+Seleccione la Carne: Experimente con diferentes cortes y niveles de cocción.
+Elija su Salsa: Experimente con diferentes salsas caseras.
+
+Acompane con Guarniciones: Patatas, ensaladas, vegetales asados.
+
+Comparta su Plato: Las carnes a la parrilla son perfectas para compartir.
+
+Marque sus Opciones: Si tiene alguna alergia o preferencia, informe a nuestro personal.
+
+Disfrute de su Comida: Saboree cada bocado y deleite con la calidad de la carne. 
