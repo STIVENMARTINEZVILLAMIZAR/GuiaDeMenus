@@ -27,3 +27,19 @@ Agua: Es la bebida ideal para acompañar las comidas.
 Infusiones: Hierbas aromáticas como té de hierbabuena o té de menta.
 
 Zumo de Frutas: Zumo de naranja, o zumo de limón (para refrescar). 
+
+
+*Consejos y Sugerencias:*
+
+Prioriza alimentos vegetales: Las frutas, verduras, legumbres y granos integrales deben ser la base de tu dieta. 
+
+Usa aceite de oliva: El aceite de oliva virgen extra es una excelente fuente de grasas saludables. 
+
+Consume pescado regularmente: El pescado es una excelente fuente de proteína y ácidos grasos omega-3. 
+
+Modera el consumo de carne: La carne debe ser consumida en porciones pequeñas y con frecuencia. 
+
+Utiliza hierbas y especias: Las hierbas y especias añaden sabor y beneficios a tus comidas. 
+
+Come en compañía y con calma: Disfrutar de la comida con otros y en un ambiente relajado es parte importante de la experiencia mediterránea. 
+
