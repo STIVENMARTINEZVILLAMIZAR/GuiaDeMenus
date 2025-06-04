@@ -26,3 +26,17 @@ Una sopa de maíz con carne (pollo, res o cerdo), preparada de forma diferente e
 
 - *Tamales:*
 Masa de maíz cocida al vapor y rellena de carne, queso o verduras, envueltas en hojas de plátano o maíz. 
+
+*Bebidas Recomendadas:*
+
+- *Tequila:*
+El destilado de agave más famoso de México, ideal para disfrutar solo o en cócteles.
+
+- *Mezcal:*
+Un destilado de agave ahumado, similar al tequila, pero con sabores más intensos y complejos.
+
+- *Michelada:*
+Una cerveza fría con jugo de limón, salsa, sal y especias, una bebida refrescante y popular en México.
+
+- *Agua de Jamaica:*
+Una bebida refrescante y saludable, hecha con la flor de jamaica, un ingrediente tradicional mexicano. 
