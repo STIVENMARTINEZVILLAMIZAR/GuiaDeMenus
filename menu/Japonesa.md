@@ -30,4 +30,4 @@ Té verde: Una bebida popular y refrescante.
 
 Shochu: Destilado de arroz, cebada, batata o otros.
 
-Umeshu: Licor de ciruela en vinagre. 
+Umeshu: Licor de ciruela en vinagre..
