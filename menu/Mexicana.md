@@ -40,3 +40,20 @@ Una cerveza fría con jugo de limón, salsa, sal y especias, una bebida refresca
 
 - *Agua de Jamaica:*
 Una bebida refrescante y saludable, hecha con la flor de jamaica, un ingrediente tradicional mexicano. 
+
+*Consejos y Sugerencias:*
+
+- *Probar la comida callejera:*
+La comida callejera mexicana es una excelente opción para disfrutar de sabores auténticos a precios accesibles. 
+
+- *No tener miedo de lo picante:*
+La comida mexicana puede ser muy picante, así que asegúrate de pedir salsa según tu tolerancia. 
+
+- *Preguntar por especialidades regionales:*
+Cada región de México tiene sus propias especialidades culinarias, así que no dudes en preguntar al personal del restaurante. 
+
+- *Disfrutar de la variedad:*
+La comida mexicana es muy diversa, así que no tengas miedo de probar diferentes platos y sabores. 
+
+- *Considerar una guía culinaria:*
+Existen muchas guías culinarias que te pueden ayudar a planificar tu viaje y descubrir los mejores restaurantes de comida mexicana. 
