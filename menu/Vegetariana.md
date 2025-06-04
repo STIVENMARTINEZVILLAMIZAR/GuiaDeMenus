@@ -14,3 +14,7 @@ Arroz integral, ensalada verde, puré de papas, verduras al vapor, batidos de fr
 
 Postres:
 Frutas frescas, yogures vegetales con miel y frutos secos, brownies vegetarianos, tartas de frutas. 
+
+*Bebidas recomendadas:*
+
+Agua, jugos de frutas naturales, bebidas vegetales (soja, avena, almendra), té de hierbas. 
