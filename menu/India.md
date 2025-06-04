@@ -26,3 +26,11 @@ Espinacas cocinadas con queso paneer y especias, un plato vegetariano popular.
 
 Samosas:
 Pastelitos rellenos de verduras o carne, fritos y servidos como aperitivo. 
+
+*Bebidas Recomendadas:*
+
+Mango Lassi: Un batido de mango con yogur, ideal para refrescarse. 
+
+Lassi (salado): Una bebida a base de yogur y especias, como cilantro o comino. 
+
+Chai (té indio): Una bebida con leche y especias, como cardamomo o clavo. 
