@@ -21,3 +21,13 @@ Gyoza: Empanadillas con relleno de cerdo y verduras.
 Tofu: Un alimento versátil y nutritivo, hecho de leche de soja.
 
 Onigiri: Bolas de arroz con relleno salado. 
+
+*Bebidas recomendadas:*
+
+Sake: Licor de arroz fermentado.
+
+Té verde: Una bebida popular y refrescante.
+
+Shochu: Destilado de arroz, cebada, batata o otros.
+
+Umeshu: Licor de ciruela en vinagre. 
