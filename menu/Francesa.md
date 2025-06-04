@@ -18,3 +18,10 @@ Una tradición francesa es comer quesos después del plato principal y antes del
 
 Postres:
 Platos dulces como crepes, macarons, éclairs, crème brûlée o tarte tatin. 
+
+*Bebidas recomendadas:*
+
+Vino: Francia es famosa por sus vinos, con una gran variedad de regiones vinícolas. Se recomienda elegir un vino que se adapte al plato que se está disfrutando. 
+
+Otros: Cerveza, agua mineral, o incluso cocteles clásicos franceses. 
+
