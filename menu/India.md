@@ -34,3 +34,20 @@ Mango Lassi: Un batido de mango con yogur, ideal para refrescarse.
 Lassi (salado): Una bebida a base de yogur y especias, como cilantro o comino. 
 
 Chai (té indio): Una bebida con leche y especias, como cardamomo o clavo. 
+
+*Consejos y Sugerencias:*
+
+Probar diferentes tipos de curry:
+La cocina india ofrece una amplia gama de curries, desde los más suaves hasta los más picantes. 
+
+Pedir Thalis:
+Un plato que incluye varios pequeños platos, ideal para probar un poco de todo. 
+
+Pedir acompañamientos:
+El arroz, el pan naan, el arroz basmati y el paneer son excelentes acompañamientos. 
+
+Considerar las especias:
+La cocina india es famosa por el uso de especias, pero si no te gustan los sabores fuertes, puedes pedir que te preparen platos menos picantes. 
+
+Disfrutar de la comida callejera:
+Los mercados y calles de la India ofrecen una gran variedad de comida callejera, como samosas, pani puri y chaat. 
