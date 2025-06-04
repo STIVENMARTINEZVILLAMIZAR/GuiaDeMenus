@@ -25,3 +25,16 @@ Vino: Francia es famosa por sus vinos, con una gran variedad de regiones viníco
 
 Otros: Cerveza, agua mineral, o incluso cocteles clásicos franceses. 
 
+*Consejos y sugerencias:*
+
+Disfruta de la experiencia:
+La comida francesa es una experiencia culinaria, así que tómate el tiempo para disfrutar de cada plato y bebida.
+
+No dudes en pedir recomendaciones:
+Los camareros suelen ser expertos en la carta y pueden ayudarte a elegir los mejores platos y vinos.
+
+Explora las regiones:
+Cada región de Francia tiene su propia cocina, así que no dudes en explorar y probar platos típicos de la zona.
+
+Considera la etiqueta:
+En Francia, es común comer a la hora del almuerzo y la cena. Además, es importante respetar las normas de etiqueta en el restaurante. 
