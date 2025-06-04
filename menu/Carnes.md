@@ -18,3 +18,15 @@ Cordero Asado: Lomo de cordero, chuleto de cordero o costillas de cordero.
 Hamburguesas: Elaboradas con carne de res de alta calidad.
 
 Carne al Pastor: Carne de cerdo marinado, servido en tacos. 
+
+*Bebidas Recomendadas:*
+
+Vinos Rojos: Maridados con carnes rojas.
+
+Vinos Blancos: Maridados con carnes blancas.
+
+Cervezas: Seleccionadas por su sabor y frescura.
+
+Refrescos: Variedad de opciones para complementar la comida.
+
+Jugos Naturales: Frescos y saludables.
