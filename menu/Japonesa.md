@@ -30,4 +30,21 @@ Té verde: Una bebida popular y refrescante.
 
 Shochu: Destilado de arroz, cebada, batata o otros.
 
-Umeshu: Licor de ciruela en vinagre..
+Umeshu: Licor de ciruela en vinagre.
+
+*Consejos y sugerencias:*
+
+Aprovechar la estacionalidad:
+Optar por ingredientes frescos de temporada para una experiencia culinaria óptima. 
+
+Intentar sabores nuevos:
+Explorar diferentes platos y estilos de cocina japonesa, como los ramen, los fideos soba, los yakitori y las gyozas. 
+
+Disfrutar de la experiencia:
+Observar la presentación de los platos y apreciar la armonía de los sabores. 
+
+Probar bebidas tradicionales:
+El sake, el té verde y otras bebidas japonesas pueden complementar la comida de manera deliciosa. 
+
+No tener miedo de experimentar:
+La comida japonesa es una aventura culinaria, así que no dudes en probar nuevas cosas y sabores. 
